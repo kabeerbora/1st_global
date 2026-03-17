@@ -1,6 +1,5 @@
 # Replication Package
 ## "Trade Openness and the Rate of Profit during the First Globalization, 1870–1913"
-### *Review of Social Economy* (Resubmission, March 2026)
 
 ---
 
